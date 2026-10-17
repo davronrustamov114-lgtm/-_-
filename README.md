@@ -1,0 +1,9 @@
+# k_k
+# NOTBUK-SOTUW-PRO
+# NOTBUK-SOTUW-PRO
+# NOTBUK-SOTUW-PRO
+# F-
+# F-
+# F-
+# F-
+# -_-
